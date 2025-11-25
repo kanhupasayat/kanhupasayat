@@ -1,4 +1,4 @@
-### Hi there, I'm [Your Name] 👋
+### Hi there, I'm [Kanhu kumar Pasayat] 👋
 
 ![Header Image](https://via.placeholder.com/1200x400?text=Your+Header+Text+Here)
 
